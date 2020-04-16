@@ -1,0 +1,1 @@
+Estou adorando! Tem sido um desafio muito inspirador. Com certeza terei que me dedicar muito para alcançar o nível que espero estar ao fim do curso, mas tenho adorado cada segundo disso.
